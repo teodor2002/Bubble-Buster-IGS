@@ -6,4 +6,6 @@
 
 
     	     Property of Indiependent Games Studio
-		      All rights reserved
+	       Background music by "Keys Of Moon"
+            All rights reserved to respective owners
+		
